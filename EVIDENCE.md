@@ -495,6 +495,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. da real derpina (@eroticaa.bsky.social) is an open zoophile.
 1. Prisul (@prisul.bsky.social) is an open zoophile.
 1. zetahyena18 (@zetahyena18.bsky.social) is an open zoophile.
+1. cat.online (@catonline0.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
