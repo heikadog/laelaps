@@ -483,7 +483,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Donku (@phantomwolfy.bsky.social) is an open zoophile.
 1. RikenaTheMutsky (@aidahusko.bsky.social) is an open zoophile: (<https://archive.today/CUEZK>).
 1. Lyronic (@hotdogjumpup.bsky.social) is an open zoophile.
-1. high ranking tail pervert (@npcuck.bsky.social) is an open zoophile.
+1. high ranking tail pervert (@zooromantic.bsky.social) is an open zoophile.
 1. KnottyKing (@biggestdoggo.bsky.social) is an open zoophile.
 1. zetamaw (@zetamaw.bsky.social) is an open zoophile.
 1. Beanie (@b3an1.bsky.social) is an open zoophile.
