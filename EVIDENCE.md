@@ -426,7 +426,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. kr5naya (@kra5naya.bsky.social) is an open zoophile.
 1. Zoo pup (@zoopupuk.bsky.social) is an open zoophile.
 1. PissySatin (@pissysatin.bsky.social) is an open zoophile.
-1. daimianthedoberman (@daimianthedoberman.bsky.social) is an open zoophile: (<https://archive.today/ciDhb>).
 1. Anziris (@anziris.bsky.social) is an open zoophile.
 1. kaiman98 (@kaiman98.bsky.social) is an open zoophile.
 1. Sneaky Spark (@sneaky-spark.bsky.social) is an open zoophile.
