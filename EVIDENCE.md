@@ -619,6 +619,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. foxy-box (@foxy-box.bsky.social) follows several open zoophiles.
 1. Java (@cookie.dog) follows several open zoophiles.
 1. ManedLioness (@barely-human.bsky.social) follows several open zoophiles.
+1. HolidayPup (@holidaypup.bsky.social) follows several open zoophiles.
 
 ### Zoophile Supporter
 
