@@ -496,6 +496,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. zetahyena18 (@zetahyena18.bsky.social) is an open zoophile.
 1. cat.online (@catonline0.bsky.social) is an open zoophile.
 1. H0und00m (@h0und00m.bsky.social) is an open zoophile.
+1. Zemirra Otter (@zemirratheotter.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
