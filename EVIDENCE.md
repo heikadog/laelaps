@@ -498,6 +498,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. H0und00m (@h0und00m.bsky.social) is an open zoophile.
 1. Zemirra Otter (@zemirratheotter.bsky.social) is an open zoophile.
 1. OtterDaDog (@otterdadog.bsky.social) is an open zoophile.
+1. Foils (@foilshearth.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
