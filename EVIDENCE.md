@@ -625,6 +625,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. ManedLioness (@barely-human.bsky.social) follows several open zoophiles.
 1. HolidayPup (@holidaypup.bsky.social) follows several open zoophiles.
 1. Puppy (@dogboy00.bsky.social) follows several open zoophiles.
+1. Mazolei (@mazolei.bsky.social) follows several open zoophiles.
 
 ### Zoophile Supporter
 
