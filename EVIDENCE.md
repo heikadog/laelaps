@@ -500,6 +500,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. OtterDaDog (@otterdadog.bsky.social) is an open zoophile.
 1. Foils (@foilshearth.bsky.social) is an open zoophile.
 1. inosi stinktail (@inosi313.bsky.social) is an open zoophile.
+1. dribblecunt (@dribblecunt.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
