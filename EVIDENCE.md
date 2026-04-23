@@ -506,6 +506,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Elianora (@theelianora.bsky.social) is an open zoophile.
 1. Sisboywife (@sissyboisissy.bsky.social) is an open zoophile.
 1. nukapaws (@nukapaws.bsky.social) is an open zoophile.
+1. doggybrained (@doggybrained.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
