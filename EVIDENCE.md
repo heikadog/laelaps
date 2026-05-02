@@ -679,7 +679,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. LoVre (@yaelovre.bsky.social) has responded positively to zoophilic posts, including, among other posts, one where they told a zoophile that a dog's tongue was "better" than a cat's: (<https://archive.today/WVaJj>), and a response to a now-deleted post that implies zoophiles should "practice:" (<https://archive.today/tyo9a>).
 1. Dark Violet (@darkviolet.bsky.social) has openly made art for Akito, an open zoophile who runs a zoophile podcast: (<https://archive.today/5BhlN)>). Additionally, she has liked a lot of posts from zoophiles, both known and open: _[CW for one of the screenshots including NSFW feral art drawn by a zoophile.]_ (<https://archive.today/Ug35l>).
 1. Nebulous Horse (@nebuloushorse.bsky.social/@lemonhorser.bsky.social) has said "nothing wrong with zoophilia" as recently as 2024: (<https://archive.today/U03D0>). When pressed on this, Lemon Drop called the poster a "bigot:" (<https://archive.today/Lci48>). They've also defended Mare Fair from zoophilia accusations, even though an organizer associated with the event, Lightsolver, was found to have sexually abused horses: (<https://archive.today/Artnj>, under the subheading "Leaked board meeting audio about Kyle “Lightsolver” Foster preying on rescues," described at the timestamp 15:00 – 20:00).
-1. Zephyr (@zephyrdragon27.bsky.social) runs a user list on Bluesky titled "Ferals and zoos," containing feral artists and open zoophiles, with the description saying they "follow" these accounts using the list. 
+1. Zephyr (@zephyrdragon27.bsky.social) runs a user list on Bluesky titled "Ferals and zoos," containing feral artists and open zoophiles, with the description saying they "follow" these accounts using the list.
 
 ### Outed Zoophile
 
@@ -710,6 +710,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Valmir (@valmirhorse.bsky.social) was outed as a zoophile. He had an account on a now-defunct animal sexual abuse forum where he shared explicit bestiality content of horses under the username "jazyjason" in 2011, which we've verified to be him through other archived social media accounts also listing themselves as being in the same location and showing photos of the same person: _[No explicit bestiality content is in this link.]_ (<https://archive.today/bJkug>). He put up a forum post under the Valmir pseudonym in 2016 claiming to need a horse for therapy: (<https://archive.today/n6rg6>). Additionally, as of 2018, his Xtube profile listed "Equines" as a turn-on: (<https://archive.today/oR8Gx>).
 1. Htess (@htess.bsky.social) was outed as a zoophile. In September 2016, he was arrested on animal cruelty charges for raping a horse, and banned from owning horses for life: (<https://archive.today/vs1Mn>). In addition, he admitted to this in a Telegram chat: (<https://archive.today/kTcLf>).
 1. Harley Pupper (@harleypupper.bsky.social) was outed as a zoophile. They admitted in a public Telegram group that this was the case, calling themselves a "closeted zoo on bluesky:" (<https://ghostarchive.org/archive/II3aD>).
+1. Kittyzone (@kittyzone.bsky.social) was outed as a zoophile, admitting to raping dogs and rabbits: (1: <https://archive.today/0xpkC> / 2: <https://archive.today/3G9PN>).
 
 ### Incidents
 
