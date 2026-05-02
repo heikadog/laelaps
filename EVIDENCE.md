@@ -710,7 +710,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Valmir (@valmirhorse.bsky.social) was outed as a zoophile. He had an account on a now-defunct animal sexual abuse forum where he shared explicit bestiality content of horses under the username "jazyjason" in 2011, which we've verified to be him through other archived social media accounts also listing themselves as being in the same location and showing photos of the same person: _[No explicit bestiality content is in this link.]_ (<https://archive.today/bJkug>). He put up a forum post under the Valmir pseudonym in 2016 claiming to need a horse for therapy: (<https://archive.today/n6rg6>). Additionally, as of 2018, his Xtube profile listed "Equines" as a turn-on: (<https://archive.today/oR8Gx>).
 1. Htess (@htess.bsky.social) was outed as a zoophile. In September 2016, he was arrested on animal cruelty charges for raping a horse, and banned from owning horses for life: (<https://archive.today/vs1Mn>). In addition, he admitted to this in a Telegram chat: (<https://archive.today/kTcLf>).
 1. Harley Pupper (@harleypupper.bsky.social) was outed as a zoophile. They admitted in a public Telegram group that this was the case, calling themselves a "closeted zoo on bluesky:" (<https://ghostarchive.org/archive/II3aD>).
-1. Kittyzone (@kittyzone.bsky.social) was outed as a zoophile, admitting to raping dogs and rabbits: (1: <https://archive.today/0xpkC> / 2: <https://archive.today/3G9PN>).
+1. Kittyzone (@k1ttyzone.bsky.social) was outed as a zoophile, admitting to raping dogs and rabbits: (1: <https://archive.today/0xpkC> / 2: <https://archive.today/3G9PN>).
 
 ### Incidents
 
