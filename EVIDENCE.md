@@ -372,7 +372,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zoo and Me (@zooand.me) is a zoophilic podcast.
 1. Vegas (@yagab0nd.bsky.social) is an open zoophile.
 1. Roxy (@wolfdemongodess.bsky.social) is an open zoophile.
-1. Kumori (@kumottatenki.bsky.social) is an open zoophile.
+1. CaO (@calciumoxyd.bsky.social) is an open zoophile.
 1. Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social) is an open zoophile.
 1. Ri-Ri/Akechi/Den (@risley1circus.bsky.social) is an open zoophile.
 1. Lash The Good Boy (@lashthegoodboy.bsky.social) is an open zoophile.
