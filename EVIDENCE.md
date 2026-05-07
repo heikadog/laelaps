@@ -110,7 +110,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Coyote Colt (@coyotecolt.bsky.social) is an open zoophile.
 1. Totally Not Zooey (@totallynotzooey.bsky.social) is an open zoophile.
 1. GlowyPaws (@glowypaws.bsky.social) is an open zoophile.
-1. Vi (@tw1stedtrans1st0r.bsky.social) is an open zoophile.
 1. Fantescatom (@fantescatom.bsky.social) is an open zoophile.
 1. Sophie (@olio.bsky.social) is an open zoophile.
 1. P0rtalW0lf (@p0rtalw0lf.bsky.social) is an open zoophile.
