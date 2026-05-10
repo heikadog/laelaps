@@ -507,6 +507,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Papa Rhino (@paparhino.dad/@papamord.bsky.social) is a zoophile. Heika worked on an outing about him with reputable whistleblower ExposeTheFV, linking him to his alt, JDonk (@zooeydonk.bsky.social), _[Now suspended, but leaving here for reference.]_ and showing he's a zoophile: (<https://twitter.com/ExposeTheFV/status/1730851018416771097>). He even liked a reply to JDonk's tweet _about_ JDonk being Rhino: (<https://twitter.com/ExposeTheFV/status/1730851024393691197>). In 2026, under a bandana of the zoophile flag he commissioned for himself, he wrote "Zoo Pride:" (<https://archive.today/oDG3d>). As such, we've moved his label up to Open Zoophile as of this writing.
 1. SilverPup (@silverpup156.bsky.social) is an open zoophile.
 1. Frisky Feral (@friskyferal.bsky.social) is an open zoophile.
+1. furryzoo69 (@furryzoo69.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
