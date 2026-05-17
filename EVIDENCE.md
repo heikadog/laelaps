@@ -509,6 +509,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Frisky Feral (@friskyferal.bsky.social) is an open zoophile.
 1. furryzoo69 (@furryzoo69.bsky.social) is an open zoophile.
 1. dog03slut (@dog03slut.bsky.social) is an open zoophile.
+1. Donk (@donknextdoor.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
