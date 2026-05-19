@@ -511,6 +511,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. furryzoo69 (@furryzoo69.bsky.social) is an open zoophile.
 1. dog03slut (@dog03slut.bsky.social) is an open zoophile.
 1. Donk (@donknextdoor.bsky.social) is an open zoophile.
+1. The Audio System (@audio.bsky.bark.wolp.chat) are an open zoophile. While they don't say it on Bluesky, the WAFRN instance in their bio directs users to a page ending in a zoophilic domain handle, and their system is hosted by an open zoophile, Breebee.
 
 ### Interacts with Zoophiles
 
