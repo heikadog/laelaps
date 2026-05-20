@@ -122,7 +122,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Fido (@fidofidelis.bsky.social) is an open zoophile.
 1. green glass dog (@greenglassdog.bsky.social) is an open zoophile.
 1. Faint (@thatfox.bsky.social) is an open zoophile.
-1. Ragnar (@ragnar-zooey.bsky.social) is an open zoophile.
+1. Virxon (@virxon.bsky.social) is an open zoophile.
 1. Salzuki (@filthyanimalzoo.bsky.social) is an open zoophile.
 1. c0smicprotogen (@c0smicprotogen.bsky.social) is an open zoophile.
 1. Thera (@thera.pw/@thera666.bsky.social/@therah.bsky.social) is an open zoophile. On November 8th, 2023, she posted feral NSFW art of Heika's fursona made to look like a zoophile as a "thanks" for creating the Zoophile Mute List, which is sexual harassment: (<https://archive.today/0YoYQ>). She also alleged that Heika was a "closeted bestialist" because they use IRL pictures of huskies to represent themselves online: (<https://archive.today/U4lnn>). And in response to Heika saying she shouldn't use her trauma to say "furries _are_ zoophiles," and, if anything, that's why zoophiles are dangerous, she sent Heika Telegram messages where she said Heika was "targeting" her, when she harassed them for listing her: (<https://archive.today/uDD4F>). _[Thera's Bluesky accounts have since been deleted, but we've decided to keep this entry in the document since this context is important to events related to the mute list and Laelaps.]_
@@ -223,6 +223,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Ollie (@ollieandzues.bsky.social) is an open zoophile.
 1. bonk (@yes650811.bsky.social) is an open zoophile.
 1. HalsanLeLoup (@petitlouphal.bsky.social) is an open zoophile.
+1. ManedLioness (@barely-human.bsky.social) is an open zoophile.
 1. Shep (@cheer0shep.bsky.social) is an open zoophile.
 1. Ayana (@ayanazoo.bsky.social) is an open zoophile.
 1. Dasha (@varmxnt.bsky.social) is an open zoophile.
@@ -239,11 +240,13 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Gay ass birb (@calliethecorvid.bsky.social) is an open zoophile.
 1. Dog Dad (@dogdad99.bsky.social) is an open zoophile.
 1. Shiro (@shirocollie.bsky.social) is an open zoophile.
+1. FeralWolf (@juicyspades.bsky.social): is an open zoophile.
 1. Birdybitch (@bordfortheword.bsky.social) is an open zoophile.
 1. wurden (@wurden.zoolandia.org) is an open zoophile.
 1. canidoor (@canidoor.bsky.social) is an open zoophile.
 1. Cave Dwelling Skunkie (@fluffskunkie.bsky.social) is an open zoophile.
 1. Zylo (@zylofox.bsky.social) is an open zoophile.
+1. Olive (@oliv3z.bsky.social) is an open zoophile.
 1. Knotty boi (@knottykittyuwu.bsky.social) is an open zoophile.
 1. AwesomeCat (@awesomecat.bsky.social) is an open zoophile.
 1. pupgrrl (@pupgrrl.bsky.social) is an open zoophile.
@@ -316,7 +319,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Puff (@blinkybutt.bsky.social) is an open zoophile.
 1. Renee (@reneethefreak.bsky.social) is an open zoophile.
 1. lai (@kittykatlover.bsky.social) is an open zoophile.
-1. Lucky the Wolf (@luckytheluckless.bsky.social) is an open zoophile.
+1. Laurus fox (@laurusfox.bsky.social) is an open zoophile.
 1. DogRed (@goldenred.bsky.social) is an open zoophile.
 1. Sub Woofer (@bigsubwoofer.bsky.social) is an open zoophile.
 1. Manure Wake (@manurewake.bsky.social) is an open zoophile.
@@ -415,6 +418,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. aardvarklove (@aardvarklove.bsky.social) is an open zoophile.
 1. Toxic/LD50 (@ld50.lol/@baxterartworks.com) is an open zoophile: (<https://archive.today/jnyeV>).
 1. asherfox (@asherfox.bsky.social) is an open zoophile.
+1. BearChaserPup (@bearchaserpup.bsky.social) is an open zoophile.
 1. mardyphin (@mardyphin.bsky.social) is an open zoophile.
 1. Sonata Dusk (@z00sonata.bsky.social) is an open zoophile.
 1. Green faced zoo (@greenfacezoo.bsky.social) is an open zoophile.
