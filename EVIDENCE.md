@@ -66,7 +66,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. PossBeans (@possbeans.bsky.social) is an open zoophile.
 1. Valkyrie (@jackalzoogirl.bsky.social) is an open zoophile.
 1. Lania Hyane (@laniahyane.bsky.social) is an open zoophile.
-1. SmolHawk (@sm0lhawk.bsky.social) is an open zoophile.
+1. CanisLuminae (@canisluminae.bsky.social) is an open zoophile.
 1. Heart Chee (@heartchee.bsky.social) is an open zoophile.
 1. Alder (@canislupusstupidus.bsky.social) is an open zoophile.
 1. Aster (@asteranimal.zoolandia.org) is an open zoophile.
@@ -145,7 +145,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. DylantheZoo (@dythezoo.bsky.social) is an open zoophile.
 1. Revvy (@revvyboi.bsky.social) is an open zoophile.
 1. Zpooky Zoo-pra (@toyotazoopra.bsky.social) is an open zoophile.
-1. Kian (@kiangten.bsky.social) is an open zoophile who tricked a minor into drawing a "zoosona" for them: (<https://archive.today/t4rUf>).
+1. Tobs/Kian (@kiangten.bsky.social) is an open zoophile who tricked a minor into drawing a "zoosona" for them: (<https://archive.today/t4rUf>).
 1. Mith Cray (@mithcray.bsky.social) is an open zoophile.
 1. Fat Zeta Dog (@furrysecret.bsky.social) is an open zoophile.
 1. werebie (@werebie.bsky.social) is an open zoophile.
