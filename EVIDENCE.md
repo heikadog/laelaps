@@ -77,7 +77,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Putter (@puppyputter.bsky.social) is an open zoophile.
 1. Marshall (@marshallthehusky.bsky.social) is an open zoophile.
 1. RikoTheUmbreon (@rikotheumbreon.bsky.social) is an open zoophile.
-1. Felion (@felion.bsky.social) is an open zoophile.
 1. unknownanybody (@unknownanybody.bsky.social) is an open zoophile.
 1. Trill (@thecatstrill.bsky.social) is an open zoophile.
 1. Zooier Than Thou (@zoo.wtf) is a zoophilic podcast.
