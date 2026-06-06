@@ -721,6 +721,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Htess (@htess.bsky.social) was outed as a zoophile. In September 2016, he was arrested on animal cruelty charges for raping a horse, and banned from owning horses for life: (<https://archive.today/vs1Mn>). In addition, he admitted to this in a Telegram chat: (<https://archive.today/kTcLf>).
 1. Harley Pupper (@harleypupper.bsky.social) was outed as a zoophile. They admitted in a public Telegram group that this was the case, calling themselves a "closeted zoo on bluesky:" (<https://ghostarchive.org/archive/II3aD>).
 1. Kittyzone (@k1ttyzone.bsky.social) was outed as a zoophile, admitting to raping dogs and rabbits: (1: <https://archive.today/0xpkC> / 2: <https://archive.today/3G9PN>).
+1. Milo Barks (@milobarkad.bsky.social) was outed as a zoophile. He added "Zoo" to his bio and continuously re-adds and deletes it. A snapshot of one of the profile changes: (<https://archive.today/4DHuR>).
 
 ### Incidents
 
