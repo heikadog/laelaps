@@ -518,7 +518,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Nancy Glowlie (@justagoonergirluwu.bsky.social) is an open zoophile.
 1. Eden (@cryptivy.bsky.social) is an open zoophile.
 1. Pup Kenji (@pupkenji.bsky.social) is an open zoophile.
-1. crazyivan16 (@crazyivan16.bsky.social) is an open zoophile.
+1. Gooning-at-last (@crazyivan16.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
