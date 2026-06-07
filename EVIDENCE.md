@@ -518,6 +518,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Nancy Glowlie (@justagoonergirluwu.bsky.social) is an open zoophile.
 1. Eden (@cryptivy.bsky.social) is an open zoophile.
 1. Gooning-at-last (@crazyivan16.bsky.social) is an open zoophile.
+1. Vladimir Makarov (@terror-tory.bsky.social) is an open zoophile. A post they've made said they got "death threats" "for being a zoo:" (<https://archive.today/eScYw>).
 
 ### Interacts with Zoophiles
 
