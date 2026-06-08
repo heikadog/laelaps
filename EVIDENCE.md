@@ -519,6 +519,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Eden (@cryptivy.bsky.social) is an open zoophile.
 1. Gooning-at-last (@crazyivan16.bsky.social) is an open zoophile.
 1. Vladimir Makarov (@terror-tory.bsky.social) is an open zoophile. A post they've made said they got "death threats" "for being a zoo": (<https://archive.today/eScYw>).
+1. Kajiro Shikoki (@kajiroshikoki.bsky.social) is an open zoophile. Their header and profile picture feature the zoophile flag.
 
 ### Interacts with Zoophiles
 
@@ -641,6 +642,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Puppy (@dogboy00.bsky.social) follows several open zoophiles.
 1. Mazolei (@mazolei.bsky.social) follows several open zoophiles.
 1. Java (@cookie.dog) follows several open zoophiles.
+1. Nutalie (@nutty.critter.land) follows several open zoophiles.
 
 ### Zoophile Supporter
 
