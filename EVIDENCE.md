@@ -723,7 +723,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Harley Pupper (@harleypupper.bsky.social) was outed as a zoophile. They admitted in a public Telegram group that this was the case, calling themselves a "closeted zoo on bluesky": (<https://ghostarchive.org/archive/II3aD>).
 1. Kittyzone (@k1ttyzone.bsky.social) was outed as a zoophile, admitting to raping dogs and rabbits: (1: <https://archive.today/0xpkC> / 2: <https://archive.today/3G9PN>).
 1. Milo Barks (@milobarkad.bsky.social) was outed as a zoophile. He added "Zoo" to his bio and continuously re-adds and deletes it. A snapshot of one of the profile changes: (<https://archive.today/4DHuR>).
-1. Mika (@pvppyslop.bsky.social) was outed as a zoophile. In 2022, in response to someone ripping up zoophilic stickers, she said "we'll put up more:" (<https://archive.today/gbkPT>) And despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry events because of how open she was about being a zoophile: (<https://archive.today/nt2gM>).
+1. Mika (@pvppyslop.bsky.social) was outed as a zoophile. In 2022, in response to someone ripping up zoophilic stickers, she said "we'll put up more": (<https://archive.today/gbkPT>). And despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry events because of how open she was about being a zoophile: (<https://archive.today/nt2gM>).
 
 ### Incidents
 
