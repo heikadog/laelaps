@@ -452,7 +452,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Yokonovish (@yokonovish.bsky.social) is an open zoophile.
 1. Fluff Xing (@emokonekoyasha.bsky.social) is an open zoophile.
 1. Claws (@clawswork.bsky.social) is an open zoophile. While they don't say it on Bluesky, they moderate for a public Telegram group called Zoo Furs Unity, in which they admitted to being a zoophile in January 2025: (1: <https://archive.today/oruLI> / 2: <https://archive.today/ljvJD>).
-1. Dreamer_Puppy (@dreamerpuppy.bsky.social) is an open zoophile.
+1. Dreamer_Puppy (@dreamerpuppy.bsky.social/@dreamer-pubby.bsky.social) is an open zoophile.
 1. latte (@sunlattei.bsky.social) is an open zoophile.
 1. Alex (@bskyalex1.bsky.social) is an open zoophile.
 1. Knotty (@knottyzoo.bsky.social) is an open zoophile.
