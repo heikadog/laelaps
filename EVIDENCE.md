@@ -521,6 +521,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Vladimir Makarov (@terror-tory.bsky.social) is an open zoophile. A post they've made said they got "death threats" "for being a zoo": (<https://archive.today/eScYw>).
 1. Kajiro Shikoki (@kajiroshikoki.bsky.social) is an open zoophile. Their header and profile picture feature the zoophile flag.
 1. 420 gooner dog (@420-g00n3r.bsky.social) is an open zoophile.
+1. ellie (@transfeministe.bsky.social) is an open zoophile: (<https://archive.today/3WrrE>).
 
 ### Interacts with Zoophiles
 
