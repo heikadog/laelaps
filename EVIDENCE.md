@@ -77,6 +77,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Putter (@puppyputter.bsky.social) is an open zoophile.
 1. Marshall (@marshallthehusky.bsky.social) is an open zoophile.
 1. RikoTheUmbreon (@rikotheumbreon.bsky.social) is an open zoophile.
+1. Felion (@felion.bsky.social) is an open zoophile.
 1. unknownanybody (@unknownanybody.bsky.social) is an open zoophile.
 1. Trill (@thecatstrill.bsky.social) is an open zoophile.
 1. Zooier Than Thou (@zoo.wtf) is a zoophilic podcast.
@@ -525,6 +526,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. ellie (@transfeministe.bsky.social) is an open zoophile: (<https://archive.today/3WrrE>).
 1. jhdth (@jhdth.bsky.social) is an open zoophile.
 1. Personas Atradas por Animales (@paamovimiento.bsky.social) is an open zoophile, aiming to "destigmatize" zoophilia. Translated from Spanish, they refer to zoophiles as "us" and other collective nouns that suggest they're not simply supporters, as with this post: (<https://archive.today/aqAKe>).
+1. Pawpeteer (@pawpeteer.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
