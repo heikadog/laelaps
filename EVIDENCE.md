@@ -523,6 +523,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kajiro Shikoki (@kajiroshikoki.bsky.social) is an open zoophile. Their header and profile picture feature the zoophile flag.
 1. 420 gooner dog (@420-g00n3r.bsky.social) is an open zoophile.
 1. ellie (@transfeministe.bsky.social) is an open zoophile: (<https://archive.today/3WrrE>).
+1. jhdth (@jhdth.bsky.social) is an open zoophile.
+1. Personas Atradas por Animales (@paamovimiento.bsky.social) is an open zoophile, aiming to "destigmatize" zoophilia. Translated from Spanish, they refer to zoophiles as "us" and other collective nouns that suggest they're not simply supporters, as with this post: (<https://archive.today/aqAKe>).
 
 ### Interacts with Zoophiles
 
