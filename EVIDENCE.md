@@ -653,6 +653,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Java (@cookie.dog) follows several open zoophiles.
 1. Nutalie (@nutty.critter.land) follows several open zoophiles.
 1. Ellirora (@ellirora.bsky.social) follows several open zoophiles.
+1. Brother Goodboy (@brothergoodboy.bsky.social) follows several open zoophiles.
 
 ### Zoophile Supporter
 
