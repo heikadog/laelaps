@@ -529,6 +529,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Pawpeteer (@pawpeteer.bsky.social) is an open zoophile.
 1. dogwife (@doggwife.bsky.social) is an open zoophile.
 1. ZetaQuinn (@quincyzeta.bsky.social) is an open zoophile.
+1. Silly Collie (@habitualcolliez.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
