@@ -533,6 +533,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zigby (@zygby.bsky.social) is an open zoophile.
 1. Huffy Dog (@doggohuffs.bsky.social) is an open zoophile. Their bio has a separated version of the triangles and four-pointed star combination used as a zoophile dogwhistle, and their profile picture as of this writing has a similar aesthetic to the zoophile flag.
 1. Hypersexual Awareness (@hyprsxl.bsky.social) is an open zoophile. They admitted to being a zoophile, finding animals "sexually attractive," and said that "sexual relationships with animals is not abuse if [it's] harmless": (<https://archive.today/Ciww4>).
+1. squirmymutt (@squirmymutt.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
