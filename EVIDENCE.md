@@ -531,6 +531,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. ZetaQuinn (@quincyzeta.bsky.social) is an open zoophile.
 1. Silly Collie (@habitualcolliez.bsky.social) is an open zoophile.
 1. Zigby (@zygby.bsky.social) is an open zoophile.
+1. Huffy Dog (@doggohuffs.bsky.social) is an open zoophile. Their bio has a separated version of the triangles and four-pointed star combination used as a zoophile dogwhistle, and their profile picture as of this writing has a similar aesthetic to the zoophile flag.
 
 ### Interacts with Zoophiles
 
