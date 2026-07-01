@@ -610,7 +610,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. AdvanWolv (@advanwolv.bsky.social) follows several open zoophiles.
 1. cloud (@exsoldier.bsky.social) follows several open zoophiles.
 1. cutiepiezoo (@cutiepiezoo.bsky.social) follows several open zoophiles.
-1. Rutger (@willowshroom.bsky.social) follows several open zoophiles.
 1. kittnpaws (@kittnpaws.bsky.social) follows several open zoophiles.
 1. Pencil (@pencil-by-pencil.bsky.social) follows several open zoophiles.
 1. stupid feral cat (@feralpornlove.bsky.social) follows several open zoophiles.
