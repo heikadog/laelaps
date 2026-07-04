@@ -739,6 +739,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Milo Barks (@milobarkad.bsky.social) was outed as a zoophile. He added "Zoo" to his bio and continuously re-adds and deletes it. A snapshot of one of the profile changes: (<https://archive.today/4DHuR>).
 1. Mika (@pvppyslop.bsky.social) was outed as a zoophile. In 2022, in response to someone ripping up zoophilic stickers, she said "we'll put up more": (<https://archive.today/gbkPT>). And despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry events because of how open she was about being a zoophile: (<https://archive.today/nt2gM>).
 1. Dazart (@dazart.bsky.social) was outed as a zoophile. They posted bestiality of them and their dog on Twitter: (<https://archive.today/9MLlU>).
+1. Frost (@frost.brightfur.net) was outed as a zoophile. They explicitly linked their account on a zoophilic Mastodon instance to a tarball containing variants of the zoophile flag, which shares the same website as their Bluesky account's handle: (<https://archive.today/PPMGb>).
 
 ### Incidents
 
