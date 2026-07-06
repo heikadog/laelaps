@@ -707,6 +707,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Nebulous Horse (@nebuloushorse.bsky.social/@lemonhorser.bsky.social) has said "nothing wrong with zoophilia" as recently as 2024: (<https://archive.today/U03D0>). When pressed on this, Lemon Drop called the poster a "bigot": (<https://archive.today/Lci48>). They've also defended Mare Fair from zoophilia accusations, even though an organizer associated with the event, Lightsolver, was found to have sexually abused horses: (<https://archive.today/Artnj>, under the subheading "Leaked board meeting audio about Kyle “Lightsolver” Foster preying on rescues," described at the timestamp 15:00 – 20:00).
 1. Zephyr (@zephyrdragon27.bsky.social) supports zoophiles by running a user list on Bluesky titled "Ferals and zoos," containing feral artists and open zoophiles, with the description saying they follow these accounts using the list.
 1. In 2024, Noxy (@noxypaws.bsky.social) boosted multiple posts on Mastodon promoting Zooier Than Thou: (1: <https://archive.today/NsLLn> / 2: <https://archive.today/WdvfO>).
+1. Dahlia (@treatsforzilth.neocities.org/@cockforzilth.tgirl.beauty) requested to be labelled as a Zoophile Supporter after Heika explained that zoophiles participating in the wider community is itself a form of harm regardless of contact stance. She confirmed this applied to her and asked to be added, stating her support is known to her social circle. For transparency, here's the full conversation: (<https://archive.today/kWOFG>).
 
 ### Outed Zoophile
 
