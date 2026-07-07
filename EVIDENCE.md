@@ -528,7 +528,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Personas Atradas por Animales (@paamovimiento.bsky.social) is an open zoophile, aiming to "destigmatize" zoophilia. Translated from Spanish, they refer to zoophiles as "us" and other collective nouns that suggest they're not simply supporters, as with this post: (<https://archive.today/aqAKe>).
 1. Pawpeteer (@pawpeteer.bsky.social) is an open zoophile.
 1. dogwife (@doggwife.bsky.social) is an open zoophile.
-1. ZetaQuinn (@quincyzeta.bsky.social) is an open zoophile.
 1. Silly Collie (@habitualcolliez.bsky.social) is an open zoophile.
 1. Zigby (@zygby.bsky.social) is an open zoophile.
 1. Huffy Dog (@doggohuffs.bsky.social) is an open zoophile. Their bio has a separated version of the triangles and four-pointed star combination used as a zoophile dogwhistle, and their profile picture as of this writing has a similar aesthetic to the zoophile flag.
