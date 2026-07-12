@@ -536,6 +536,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Riri (@purpleposter.bsky.social) is an open zoophile.
 1. Possum Stink (@possumstink.bsky.social) is an open zoophile.
 1. malamute stink (@malamutestink.bsky.social) is an open zoophile.
+1. Sable Stink (@sablestink.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
