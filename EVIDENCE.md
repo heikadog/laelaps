@@ -534,6 +534,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Hypersexual Awareness (@hyprsxl.bsky.social) is an open zoophile. They admitted to being a zoophile, finding animals "sexually attractive," and said that "sexual relationships with animals is not abuse if [it's] harmless": (<https://archive.today/Ciww4>).
 1. squirmymutt (@squirmymutt.bsky.social) is an open zoophile.
 1. Riri (@purpleposter.bsky.social) is an open zoophile.
+1. Possum Stink (@possumstink.bsky.social) is an open zoophile.
+1. malamute stink (@malamutestink.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
