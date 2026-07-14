@@ -746,6 +746,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Dazart (@dazart.bsky.social) was outed as a zoophile. They posted bestiality of them and their dog on Twitter: (<https://archive.today/9MLlU>).
 1. Frost (@frost.brightfur.net/@ylfingr.brightfur.net) was outed as a zoophile. They explicitly linked their account on a zoophilic Mastodon instance to a tarball containing variants of the zoophile flag, which shares the same website as their main Bluesky account's handle: (<https://archive.today/PPMGb>).
 1. Tshack (@tshackddegen.bsky.social/@tshackddogfucker.bsky.social/@tshackdmenace.bsky.social/@tshackdgutmuncher.bsky.social) was outed as a zoophile. Despite identifying one of their accounts as a "feral alt," the account has a Greek zeta in its display name, and they frequently interact with open zoophiles on that account in replies and likes. We've added the Outed Zoophile label to all of their accounts.
+1. Lapsio (@lapsio.bsky.social) admitted to being a zoophile in a Telegram group: (<https://archive.today/g3Hb4>).
 
 ### Incidents
 
