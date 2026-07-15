@@ -369,7 +369,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Ghoul (@s1ghthound.bsky.social) is an open zoophile.
 1. HerdUtility (@herdz.bsky.social) is an open zoophile.
 1. PawkyPaws (@pawkypaw.bsky.social) is an open zoophile.
-1. Cowboi69 (@cwbi6.bsky.social) is an open zoophile. They referred to zoophiles as a "minority community": (<https://archive.today/oOabA>), and posted on multiple zoophilic online forums under the same username, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret": (<https://archive.today/URSpE>).
 1. Tedious Dullard (@tediousdullard.bsky.social) is an open zoophile.
 1. Zoo and Me (@zooand.me) is a zoophilic podcast.
 1. Vegas (@yagab0nd.bsky.social) is an open zoophile.
@@ -469,7 +468,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. localknottypup (@localknottypup.bsky.social) is an open zoophile.
 1. kara (@projektbashboard.bsky.social) is an open zoophile. While they don't say it on Bluesky, their Twitter account links back to this account: (<https://archive.today/hG7Ki>).
 1. SpotzDottz (@spotzdottz.bsky.social) is an open zoophile.
-1. Strifecaster (@strifecaster.bsky.social) is an open zoophile. While they don't say it on Bluesky, they're active in a public Telegram group called Zoo Furs Unity, in which they admitted to being a zoophile but edited the message to obscure it from us: (<https://archive.today/8xvli>).
 1. Phoxinus (@phoxinus.bsky.social) is an open zoophile.
 1. Naafiri Love (@naafiri-love.bsky.social) is an open zoophile.
 1. AutiZoom (@autiszoom.bsky.social) is an open zoophile.
@@ -746,6 +744,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Frost (@frost.brightfur.net/@ylfingr.brightfur.net) was outed as a zoophile. They explicitly linked their account on a zoophilic Mastodon instance to a tarball containing variants of the zoophile flag, which shares the same website as their main Bluesky account's handle: (<https://archive.today/PPMGb>).
 1. Tshack (@tshackddegen.bsky.social/@tshackddogfucker.bsky.social/@tshackdmenace.bsky.social/@tshackdgutmuncher.bsky.social) was outed as a zoophile. Despite identifying one of their accounts as a "feral alt," the account has a Greek zeta in its display name, and they frequently interact with open zoophiles on that account in replies and likes. We've added the Outed Zoophile label to all of their accounts.
 1. Lapsio (@lapsio.bsky.social) admitted to being a zoophile in a Telegram group: (<https://archive.today/g3Hb4>).
+1. Strifecaster (@strifecaster.bsky.social) admitted to being a zoophile in a public Telegram group, but edited the message to obscure it from us: (<https://archive.today/8xvli>).
+1. Cowboi69 (@cwbi6.bsky.social) was outed as a zoophile. They referred to zoophiles as a "minority community": (<https://archive.today/oOabA>), and posted on multiple zoophilic online forums under the same username, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret": (<https://archive.today/URSpE>).
 
 ### Incidents
 
