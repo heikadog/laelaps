@@ -535,6 +535,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. malamute stink (@malamutestink.bsky.social) is an open zoophile.
 1. Sable Stink (@sablestink.bsky.social) is an open zoophile.
 1. Feathered lover (@featherfreak.bsky.social) is an open zoophile.
+1. ShepskyLover (@shepskylover.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
