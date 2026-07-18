@@ -661,6 +661,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Ellirora (@ellirora.bsky.social) follows several open zoophiles.
 1. Brother Goodboy (@brothergoodboy.bsky.social) follows several open zoophiles.
 1. Curl Connoisseur (@kitabutt.bsky.social) follows several open zoophiles.
+1. knotyours (@knotyours.bsky.social) follows several open zoophiles.
 
 ### Zoophile Supporter
 
