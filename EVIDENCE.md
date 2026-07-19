@@ -657,7 +657,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Puppy (@dogboy00.bsky.social) follows several open zoophiles.
 1. Mazolei (@mazolei.bsky.social) follows several open zoophiles.
 1. Java (@cookie.dog) follows several open zoophiles.
-1. Nutalie (@nutty.critter.land) follows several open zoophiles.
 1. Ellirora (@ellirora.bsky.social) follows several open zoophiles.
 1. Brother Goodboy (@brothergoodboy.bsky.social) follows several open zoophiles.
 1. Curl Connoisseur (@kitabutt.bsky.social) follows several open zoophiles.
@@ -749,6 +748,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Lapsio (@lapsio.bsky.social) admitted to being a zoophile in a Telegram group: (<https://archive.today/g3Hb4>).
 1. Strifecaster (@strifecaster.bsky.social) admitted to being a zoophile in a public Telegram group, but edited the message to obscure it from us: (<https://archive.today/8xvli>).
 1. Cowboi69 (@cwbi6.bsky.social) was outed as a zoophile. They referred to zoophiles as a "minority community": (<https://archive.today/oOabA>), and posted on multiple zoophilic online forums under the same username, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret": (<https://archive.today/URSpE>).
+1. The Critter Collective (@nutty.critter.land/@thistle.critter.land/@critterfluid.critter.land/@babybinty.critter.land/@creatures.critter.land) are a system belonging to a zoophile. In a public Telegram group chat for open zoophiles, they implied that they "wanna get on [Laelaps] the normal way," and asked for people to not "report [them] to [the] list," opting to "let it happen naturally": (<https://archive.today/TNO9M>). Given this revelation, we've labelled all of their accounts as Outed Zoophiles.
 
 ### Incidents
 
