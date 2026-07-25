@@ -537,6 +537,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Feathered lover (@featherfreak.bsky.social) is an open zoophile.
 1. ShepskyLover (@shepskylover.bsky.social) is an open zoophile.
 1. rotting wolves collective (@rachipupsz.bsky.social) is an open zoophile.
+1. Cetty (@ittybittyzoo.feral.cafe.ap.brid.gy) is an open zoophile.
 
 ### Interacts with Zoophiles
 
