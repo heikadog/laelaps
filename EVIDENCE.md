@@ -464,7 +464,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. pandifference (@pandifference.bsky.social) is an open zoophile.
 1. Smith Haklyut (@smithhaklyut.bsky.social) is an open zoophile.
 1. mason (@masonlovesdogs.bsky.social) is an open zoophile.
-1. theshypuppy45 (@theshypuppy45.bsky.social) is an open zoophile.
 1. localknottypup (@localknottypup.bsky.social) is an open zoophile.
 1. kara (@projektbashboard.bsky.social) is an open zoophile. While they don't say it on Bluesky, their Twitter account links back to this account: (<https://archive.today/hG7Ki>).
 1. SpotzDottz (@spotzdottz.bsky.social) is an open zoophile.
