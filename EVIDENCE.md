@@ -312,7 +312,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Dumb Dog (@dum-d0g.bsky.social) is an open zoophile.
 1. Ruin Seeker (@errisessel.bsky.social) is an open zoophile.
 1. ZuuBoy2k (@zuuboy2k.bsky.social) is an open zoophile.
-1. RachelTheFictionkin (@rachelgardner.bsky.social) is an open zoophile.
+1. RachelTheFictionkin (@rachelgardner.bsky.social/@roofiethegiblin.bsky.social) is an open zoophile.
 1. Shiv (@shiv950.bsky.social) is an open zoophile.
 1. Synesthesia (@synesthesiacoyote.bsky.social) is an open zoophile.
 1. Mud (@muttmud.bsky.social) is an open zoophile.
