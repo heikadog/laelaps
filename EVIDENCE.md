@@ -541,6 +541,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Flipside (@flipsideotter.bsky.social) is an open zoophile.
 1. zangooselin (@zangooselin.bsky.social) is an open zoophile.
 1. TioMorb (@xtioxgay.bsky.social) is an open zoophile.
+1. DryCall (@drycall.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
