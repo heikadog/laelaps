@@ -603,7 +603,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. A pretty good dog (@fourpawsnolaws.bsky.social) follows several open zoophiles.
 1. theefoxy (@theefoxy.bsky.social) follows several open zoophiles.
 1. Felis (@moonfeline.bsky.social) follows several open zoophiles.
-1. Tekfox (@tekfox.bsky.social) and Dire (@direprophecies.bsky.social) were accused of being zoophiles by multiple sources in Telegram messages to ConStaffWatch, pictured hanging out with Akari and several other zoophiles at a ski meet called Furry Ski Weekend: (<https://archive.today/kno0f>). The founders of the ski meet, Dire, Tekfox, and another fursuiter named Tuaolo, were friends with now-convicted zoosadist and pedophile Cupid the Deer, even after allegedly banning him from the meets when he got convicted: (<https://archive.today/2zn5Q>). Additionally, they've long been friends with Lycaon Victus, who has gone on record saying he's a zoophile: (<https://archive.today/0l7mq>) years after he was open about being a zoophile: (1: <https://archive.today/gSsgN> / 2: <https://archive.today/UtPd3>).
 1. daddy8 (@daddy8.bsky.social) follows several open zoophiles.
 1. yugaslath (@yugaslath.bsky.social) follows several open zoophiles.
 1. Windswept Canopies (@windsweptcanopies.bsky.social) follows several open zoophiles.
@@ -717,6 +716,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zephyr (@zephyrdragon27.bsky.social) supports zoophiles by running a user list on Bluesky titled "Ferals and zoos," containing feral artists and open zoophiles, with the description saying they follow these accounts using the list.
 1. In 2024, Noxy (@noxypaws.bsky.social) boosted multiple posts on Mastodon promoting Zooier Than Thou: (1: <https://archive.today/NsLLn> / 2: <https://archive.today/WdvfO>).
 1. Dahlia (@treatsforzilth.neocities.org/@cockforzilth.tgirl.beauty) requested to be labelled as a Zoophile Supporter after Heika explained that zoophiles participating in the wider community is itself a form of harm regardless of contact stance. She confirmed this applied to her and asked to be added, stating her support is known to her social circle. For transparency, here's the full conversation: (<https://archive.today/kWOFG>).
+1. Tekfox (@tekfox.bsky.social/@friskyfoxlog.bsky.social) and Dire (@direprophecies.bsky.social) were accused of being zoophiles by multiple sources in Telegram messages to ConStaffWatch, pictured hanging out with Akari and several other zoophiles at a ski meet called Furry Ski Weekend: (<https://archive.today/kno0f>). The founders of the ski meet, Dire, Tekfox, and another fursuiter named Tuaolo, were friends with now-convicted zoosadist and pedophile Cupid the Deer, even after allegedly banning him from the meets when he got convicted: (<https://archive.today/2zn5Q>). Additionally, they've long been friends with Lycaon Victus, who has gone on record saying he's a zoophile: (<https://archive.today/0l7mq>) years after he was open about being a zoophile: (1: <https://archive.today/gSsgN> / 2: <https://archive.today/UtPd3>).
 
 ### Outed Zoophile
 
