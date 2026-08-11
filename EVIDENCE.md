@@ -669,6 +669,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. knottypupslut (@knottypupslut.bsky.social) follows several open zoophiles.
 1. PupKnoti (@pupknoti.bsky.social) follows several open zoophiles.
 1. 25yo (@maximilien91251.bsky.social) follows several open zoophiles.
+1. foxybox22 (@foxybox22.bsky.social) follows several open zoophiles.
 
 ### Zoophile Supporter
 
