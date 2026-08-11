@@ -672,6 +672,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. foxybox22 (@foxybox22.bsky.social) follows several open zoophiles.
 1. eddyincubus (@eddyincubus.bsky.social) follows several open zoophiles.
 1. BrassSupper (@legoo32.bsky.social) follows several open zoophiles.
+1. H0RSIE (@h0rsie.bsky.social) follows several open zoophiles.
 
 ### Zoophile Supporter
 
