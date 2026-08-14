@@ -501,7 +501,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. inosi stinktail (@inosi313.bsky.social) is an open zoophile.
 1. dribblecunt (@dribblecunt.bsky.social) is an open zoophile.
 1. knotquean (@hollysbitch.bsky.social) is an open zoophile.
-1. Susie Draconis (@susiedraconis.bsky.social) is an open zoophile.
+1. scolipedefucker (@scolipedefucker.bsky.social) is an open zoophile.
 1. Elianora (@theelianora.bsky.social) is an open zoophile.
 1. Sisboywife (@sissyboisissy.bsky.social) is an open zoophile.
 1. nukapaws (@nukapaws.bsky.social) is an open zoophile.
