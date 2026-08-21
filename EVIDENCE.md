@@ -543,6 +543,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. DryCall (@drycall.bsky.social) is an open zoophile.
 1. dog are key (@goat100.bsky.social) is an open zoophile.
 1. vulturecreature (@vulturecreature.bsky.social) is an open zoophile.
+1. Alexis Rivers (@alexisrivers.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
