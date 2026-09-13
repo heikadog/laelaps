@@ -550,7 +550,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. In a reply to the second post from sammy's entry, charlottepony (@charlottepony.bsky.social) said "zoophiles are based we're awesome," implying that she is a zoophile: (<https://archive.today/bR5uW>).
 1. Fawn D. Deer (@lolicondeer.bsky.social) is an open zoophile.
 1. hari (@strangerhari.bsky.social) is an open zoophile.
-1. Pup Kenji (@pupkenji.bsky.social) is an open zoophile: (<https://archive.today/8GNUP>).
 
 ### Interacts with Zoophiles
 
@@ -761,6 +760,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Nutalie (@nutty.critter.land) was outed as a zoophile. In a public Telegram group chat for open zoophiles, they said that they "wanna get on [Laelaps] the normal way," and asked for people to not "report [them] to [the] list," opting to "let it happen naturally": (<https://archive.today/kNPV9>).
 1. Akira Husky (@akiraslutsky.bsky.social) admitted to being a zoophile in a Telegram group: (<https://archive.today/8WL0d>). Pictured in the archive, the thumbnail for a video she posted includes the same fursuit she posts publicly. In the archive, she also says, "I love being a zoosuiter", which is a reference to being a zoophile and a fursuiter.
 1. Shortcake (@shortcakepwppy.bsky.social) admitted to being a zoophile in a Discord server: (<https://archive.today/tuzFd>).
+1. Pup Kenji (@pupkenji.bsky.social) put that they were a zoophile in their bio and then deleted it: (<https://archive.today/8GNUP>).
 
 ### Incidents
 
