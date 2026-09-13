@@ -549,6 +549,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. sammy (@cherrykitten.gay) is an open zoophile. It has posted openly about how it "[hates] that 'white women are dogfuckers' cliche, most white women would probably want me dead because i actually want to fuck dogs...": (<https://archive.today/gWUKM>), and how "someone with 'zoophiles dni' in their bio [interacted] with [its] posts about dogs barking making [it] horny": (<https://archive.today/ZdFyZ>).
 1. In a reply to the second post from sammy's entry, charlottepony (@charlottepony.bsky.social) said "zoophiles are based we're awesome," implying that she is a zoophile: (<https://archive.today/bR5uW>).
 1. Fawn D. Deer (@lolicondeer.bsky.social) is an open zoophile.
+1. hari (@strangerhari.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
