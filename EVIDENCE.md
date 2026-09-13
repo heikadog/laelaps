@@ -550,6 +550,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. In a reply to the second post from sammy's entry, charlottepony (@charlottepony.bsky.social) said "zoophiles are based we're awesome," implying that she is a zoophile: (<https://archive.today/bR5uW>).
 1. Fawn D. Deer (@lolicondeer.bsky.social) is an open zoophile.
 1. hari (@strangerhari.bsky.social) is an open zoophile.
+1. Pup Kenji (@pupkenji.bsky.social) is an open zoophile: (<https://archive.today/8GNUP>).
 
 ### Interacts with Zoophiles
 
