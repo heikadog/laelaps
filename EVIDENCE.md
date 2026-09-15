@@ -762,6 +762,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Akira Husky (@akiraslutsky.bsky.social) admitted to being a zoophile in a Telegram group: (<https://archive.today/8WL0d>). Pictured in the archive, the thumbnail for a video she posted includes the same fursuit she posts publicly. In the archive, she also says, "I love being a zoosuiter", which is a reference to being a zoophile and a fursuiter.
 1. Shortcake (@shortcakepwppy.bsky.social) admitted to being a zoophile in a Discord server: (<https://archive.today/tuzFd>).
 1. Pup Kenji (@pupkenji.bsky.social) put that they were a zoophile in their bio and then deleted it: (<https://archive.today/8GNUP>).
+1. Dasher The Dashing Dragon (@dashertdd.bsky.social) admitted to being a zoophile in a public Telegram group: (<https://archive.today/zlXVU>).
 
 ### Incidents
 
