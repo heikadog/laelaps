@@ -443,7 +443,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. CooZooLoo (@z0ooooo.bsky.social) is an open zoophile.
 1. Lysol (@lysolthezoo.bsky.social) is an open zoophile.
 1. Lee Jade (@leejadezeta.bsky.social) is an open zoophile.
-1. VoidFur (@voidfur33.bsky.social) is an open zoophile.
 1. FoxCub621/BarkBrainedBeta (@foxcub621.bsky.social/@barkbrainedbeta.bsky.social) is an open zoophile: (<https://archive.today/oYC6H>).
 1. Bailey Shep (@brattymawz.bsky.social) is an open zoophile.
 1. somthinzooey (@somthinzooey.bsky.social) is an open zoophile.
@@ -763,6 +762,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Shortcake (@shortcakepwppy.bsky.social) admitted to being a zoophile in a Discord server: (<https://archive.today/tuzFd>).
 1. Pup Kenji (@pupkenji.bsky.social) put that they were a zoophile in their bio and then deleted it: (<https://archive.today/8GNUP>).
 1. Dasher The Dashing Dragon (@dashertdd.bsky.social) admitted to being a zoophile in a public Telegram group: (<https://archive.today/zlXVU>).
+1. VoidFur (@voidfur33.bsky.social) was outed to be a zoophile in a private DM, saying in relation to server rules, "no IRL zoo stuff here [...] we leave that for the other server": (<https://archive.today/9y65m>).
 
 ### Incidents
 
