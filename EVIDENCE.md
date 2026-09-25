@@ -607,7 +607,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Curl Connoisseur (@akitabutt.bsky.social) follows several open zoophiles.
 1. PupKnoti (@pupknoti.bsky.social) follows several open zoophiles.
 1. 25yo (@maximilien91251.bsky.social) follows several open zoophiles.
-1. eddyincubus (@eddyincubus.bsky.social) follows several open zoophiles.
 1. BrassSupper (@legoo32.bsky.social) follows several open zoophiles.
 1. H0RSIE (@h0rsie.bsky.social) follows several open zoophiles.
 
@@ -663,6 +662,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Phox in a Box (@phox-in-a-box.bsky.social) has expressed support for zoophilia in multiple Discord servers, and has previously identified as one herself, albeit privately. In 2025, she posted a header image for Zooey Dot Pub, a zoophilic online magazine, writing in a zoophilic Discord server, "Interesting header image for the new article.", spoilering, "I might make a tag at my local Walmart with the same text.": (<https://archive.today/IccvS>). In the screenshot provided, she also says she'd be "worried about [her] dog partner's safety if they wore a tag labelled 'human fucker'", and lamented the fact that they didn't have an "animal partner" at the time. More recently, in February 2026, in an invite-only Discord server, she said she "used to run with that crowd", or open zoophiles, and recommended to another user that they "avoid interacting with them publicly if you care about your reputation," adding that she didn't "think they're necessarily bad people.": (<https://archive.today/0i7Ds>).
 1. rosemary (@roselorr.bsky.social) expressed support for "non-contact pedophiles and zoophiles": (<https://archive.today/FOnNl>), and implied that someone who followed it and had "zoos, pedos, fuck off" in their bio would take a while to distance themselves: (<https://archive.today/vEJhF>).
 1. systemakhaosu (@systemakhaosu.bsky.social) defended lifecasting by saying it's "ethically no different from any other animal product, and if anything it's more ethical than meat and leather because the animal survives the process": (<https://archive.today/47Jxm>).
+1. eddyincubus (@eddyincubus.bsky.social) asked an inactive open zoophile to "link [them] to [their] new stuff": (<https://archive.today/cvjtE>), and liking a post of a bandana with the zoophile flag on it: (1: <https://archive.today/iI7bN> / 2: <https://archive.today/52VMK>).
 
 ### Outed Zoophile
 
