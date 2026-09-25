@@ -551,6 +551,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. hari (@strangerhari.bsky.social) is an open zoophile.
 1. Tiyamuru (@tiyamuru.bsky.social) is an open zoophile.
 1. Sziths (@sziths.bsky.social) is an open zoophile. They posted their "foxsona" with a bandana of the zoophile flag: (<https://archive.today/19Ziq>).
+1. Hoply (@moviecarpender.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
