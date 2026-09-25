@@ -706,7 +706,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Pup Kenji (@pupkenji.bsky.social) put that they were a zoophile in their bio and then deleted it: (<https://archive.today/8GNUP>).
 1. Dasher The Dashing Dragon (@dashertdd.bsky.social) admitted to being a zoophile in a public Telegram group: (<https://archive.today/zlXVU>).
 1. VoidFur (@voidfur33.bsky.social) was outed as a zoophile in a private DM, saying in relation to server rules, "no IRL zoo stuff here [...] we leave that for the other server": (<https://archive.today/9y65m>).
-1. Kryiak Stormfeather (@kryiak.bsky.social), also known as Ryken, admitted to being a zoophile in a private Telegram DM, and collected and distributed animal sexual abuse media. We've archived proof of Kryiak's alias, Ryken, belonging to him: (<https://archive.today/0U19G>). In addition, we've archived proof of him admitting to being a zoophile: (<https://archive.today/ALcs3>), and distributing animal sexual abuse media: (<https://archive.today/rAXp6>).
+1. Kryiak Stormfeather (@kryiak.bsky.social/@lewdfeathers.bsky.social), also known as Ryken, admitted to being a zoophile in a private Telegram DM, and collected and distributed animal sexual abuse media. We've archived proof of Kryiak's alias, Ryken, belonging to him: (<https://archive.today/0U19G>). In addition, we've archived proof of him admitting to being a zoophile: (<https://archive.today/ALcs3>), and distributing animal sexual abuse media: (<https://archive.today/rAXp6>).
 
 ### Incidents
 
