@@ -551,7 +551,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. hari (@strangerhari.bsky.social) is an open zoophile.
 1. Tiyamuru (@tiyamuru.bsky.social) is an open zoophile.
 1. Sziths (@sziths.bsky.social) is an open zoophile. They posted their "foxsona" with a bandana of the zoophile flag: (<https://archive.today/19Ziq>).
-1. Hoply (@moviecarpender.bsky.social) is an open zoophile.
 1. Zagreus Nyx (@zagreusnyx.bsky.social) is an open zoophile, who posted about it on Bluesky (<https://archive.today/WaCph>), linking to a video they posted. In the video, they refer to themselves as a "canine cookie connoisseur", a dogwhistle in reference to canine vulva.
 1. Sophia Phocks (@ayeceeblewphocks.bsky.social) is an open zoophile, who posted about it on Bluesky: (<https://archive.today/w8A9o>).
 1. ZetaHyena (@zetazooeyhyena.bsky.social) is an open zoophile.
