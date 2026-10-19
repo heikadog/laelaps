@@ -556,6 +556,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. ZetaHyena (@zetazooeyhyena.bsky.social) is an open zoophile.
 1. Malachite (@gg-blu.bsky.social) is an open zoophile.
 1. WE GO EVEN DARKER (@chromaticfreakshow.bsky.social) is an open zoophile.
+1. Sif (@sif01.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
