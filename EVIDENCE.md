@@ -555,6 +555,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Sophia Phocks (@ayeceeblewphocks.bsky.social) is an open zoophile, who posted about it on Bluesky: (<https://archive.today/w8A9o>).
 1. ZetaHyena (@zetazooeyhyena.bsky.social) is an open zoophile.
 1. Malachite (@gg-blu.bsky.social) is an open zoophile.
+1. WE GO EVEN DARKER (@chromaticfreakshow.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
