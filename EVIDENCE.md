@@ -558,6 +558,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. WE GO EVEN DARKER (@chromaticfreakshow.bsky.social) is an open zoophile.
 1. Sif (@sif01.bsky.social) is an open zoophile.
 1. Xx_CritterGurl_xX (@crittergurl.bsky.social) is an open zoophile.
+1. Pupper Wuffer (@pupperwuffer.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
