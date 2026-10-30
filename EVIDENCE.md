@@ -559,6 +559,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Sif (@sif01.bsky.social) is an open zoophile.
 1. Xx_CritterGurl_xX (@crittergurl.bsky.social) is an open zoophile.
 1. Pupper Wuffer (@pupperwuffer.bsky.social) is an open zoophile.
+1. Windswept Canopies (@windsweptcanopies.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
@@ -586,7 +587,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Unuyo (@nuyo.bsky.social) follows several open zoophiles.
 1. Jamie J (@slightlyflightyone.bsky.social) has liked multiple pro-paraphilia posts from open zoophiles: (<https://archive.today/En7tX>).
 1. Kibbie (@kibbieuwu.bsky.social) follows several open zoophiles.
-1. Windswept Canopies (@windsweptcanopies.bsky.social) follows several open zoophiles.
 1. yingofficial (@yingofficial.bsky.social) follows several open zoophiles.
 1. Leo the seal (@leotheseal.bsky.social) follows several open zoophiles.
 1. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
