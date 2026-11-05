@@ -560,6 +560,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Xx_CritterGurl_xX (@crittergurl.bsky.social) is an open zoophile.
 1. Pupper Wuffer (@pupperwuffer.bsky.social) is an open zoophile.
 1. Windswept Canopies (@windsweptcanopies.bsky.social) is an open zoophile.
+1. Krystal (@krystalmeth666.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
