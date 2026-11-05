@@ -672,6 +672,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. rosemary (@roselorr.bsky.social) expressed support for "non-contact pedophiles and zoophiles": (<https://archive.today/FOnNl>), and implied that someone who followed it and had "zoos, pedos, fuck off" in their bio would take a while to distance themselves: (<https://archive.today/vEJhF>).
 1. systemakhaosu (@systemakhaosu.bsky.social) defended lifecasting by saying it's "ethically no different from any other animal product, and if anything it's more ethical than meat and leather because the animal survives the process": (<https://archive.today/47Jxm>).
 1. eddyincubus (@eddyincubus.bsky.social) asked an inactive open zoophile to "link [them] to [their] new stuff": (<https://archive.today/cvjtE>), and liking a post of a bandana with the zoophile flag on it: (1: <https://archive.today/iI7bN> / 2: <https://archive.today/52VMK>).
+1. feralstica (@feralistica.bsky.social) states in their bio that they're "friendly" to zoophiles: (<https://archive.today/60dRD>).
 
 ### Outed Zoophile
 
