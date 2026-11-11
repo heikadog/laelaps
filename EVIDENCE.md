@@ -166,7 +166,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Junior22 (@junior22.bsky.social) is an open zoophile.
 1. Skydog (@skyk9.bsky.social) is an open zoophile.
 1. AzAnSoRa (@k969.bsky.social) is an open zoophile.
-1. Zoomy Cat (@zoomycat.bsky.social) is an open zoophile.
+1. Jadza (@zoomycat.bsky.social) is an open zoophile.
 1. dogoflife (@dogoflife.bsky.social) is an open zoophile.
 1. high4lifedude (@high4lifedude.bsky.social) is an open zoophile.
 1. howler (@howlerzeta.bsky.social) is an open zoophile.
@@ -561,7 +561,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Pupper Wuffer (@pupperwuffer.bsky.social) is an open zoophile.
 1. Windswept Canopies (@windsweptcanopies.bsky.social) is an open zoophile.
 1. Krystal (@krystalmeth666.bsky.social) is an open zoophile.
-1. silieen (@silieen.bsky.social) is an open zoophile.
+1. Silieen (@silieen.bsky.social) is an open zoophile.
+1. Marelily (@marelily.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
