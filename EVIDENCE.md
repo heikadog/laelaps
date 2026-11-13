@@ -562,7 +562,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Windswept Canopies (@windsweptcanopies.bsky.social) is an open zoophile.
 1. Krystal (@krystalmeth666.bsky.social) is an open zoophile.
 1. Silieen (@silieen.bsky.social) is an open zoophile.
-1. Marelily (@marelily.bsky.social) is an open zoophile.
 1. dragonclaws4 (@dragonclaws4.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
