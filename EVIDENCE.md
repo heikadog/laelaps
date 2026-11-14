@@ -562,6 +562,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Krystal (@krystalmeth666.bsky.social) is an open zoophile.
 1. Silieen (@silieen.bsky.social) is an open zoophile.
 1. dragonclaws4 (@dragonclaws4.bsky.social) is an open zoophile.
+1. Lichen (@pervyopossum.bsky.social) is an open zoophile.
+1. puppy (@pupmuttpriv.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
