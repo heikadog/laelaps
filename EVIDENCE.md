@@ -565,6 +565,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Lichen (@pervyopossum.bsky.social) is an open zoophile.
 1. puppy (@pupmuttpriv.bsky.social) is an open zoophile.
 1. PonutPrincess14 (@ponutprincess.bsky.social) is an open zoophile.
+1. Problematic Jax (@problematicjax.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
