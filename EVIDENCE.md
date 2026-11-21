@@ -564,7 +564,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. dragonclaws4 (@dragonclaws4.bsky.social) is an open zoophile.
 1. Lichen (@pervyopossum.bsky.social) is an open zoophile.
 1. puppy (@pupmuttpriv.bsky.social) is an open zoophile.
-1. Problematic Jax (@problematicjax.bsky.social) is an open zoophile.
+1. Paraphile Jax (@paraphilejax.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
